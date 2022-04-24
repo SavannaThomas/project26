@@ -1,0 +1,1 @@
+The entire mango cake is made with whole wheat flour or chapati atta. you can also make the cake with all purpose flour (maida) or half-half of both whole wheat flour and all purpose flour. The cake has a nice aroma of mangoes along with a light, soft texture. There is also the nutty aroma of whole wheat flour in the cake.

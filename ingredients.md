@@ -1,0 +1,3 @@
+For the dry ingredients, I use a simple mix of flour, baking powder, and baking soda, and for the wet ingredients, I use sugar, oil, mango puree, vanilla, and milk. What gives this cake the delicious flavor of mango is the smooth mango puree that I mix with the wet ingredients as well as put in the middle of every layer of cake. It brings the recipe together and ties it with the cardamom cream cheese frosting.
+
+For the frosting, I beat cream cheese with butter, icing sugar, vanilla extract and the star of the frosting- CARDAMOM POWDER. 
